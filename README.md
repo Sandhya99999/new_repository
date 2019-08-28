@@ -1,4 +1,0 @@
-# sandhya
-sandy
-lovely
-renu
